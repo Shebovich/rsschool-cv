@@ -4,6 +4,6 @@ Last Name: **Urbanovich**
 
 e-mail: *pavel urbanovichpv@okbtsp.com*
 
-Education: BSUIR (2016-2020)
+Education: BSUIR (2015-2020)
 
 English level: A1
