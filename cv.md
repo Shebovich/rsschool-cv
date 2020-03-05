@@ -6,4 +6,4 @@ e-mail: *pavel urbanovichpv@okbtsp.com*
 
 Education: BSUIR (2016-2020)
 
-English level: B1
+English level: A1
